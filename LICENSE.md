@@ -1,4 +1,4 @@
-
+Experience king legacy like never before with elite Scripts for king legacy, the #1 Script. Includes auto-farm and god mode for unbeatable
 
 
 
